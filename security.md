@@ -10,7 +10,7 @@ The **🌙 99 Nights in the Forest Script No Key** is the most powerful automati
 
 <div align="center">
 
-[![Download 99 Nights in the Forest Script No Key](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/okiehubbabubba0602)
+[![Download 99 Nights in the Forest Script No Key](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://share.google/XpE6bsSbxUzpUyLAm)
 
 </div>
 
@@ -199,7 +199,7 @@ One script. Forest domination. Zero keys.
 
 <div align="center">
 
-[![Download 99 Nights in the Forest Script No Key](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/okiehubbabubba0602)
+[![Download 99 Nights in the Forest Script No Key](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://share.google/XpE6bsSbxUzpUyLAm)
 
 **Version 2026.117.1** — Auto survive. ESP. God mode. Free forever.
 
